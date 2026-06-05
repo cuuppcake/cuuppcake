@@ -1,4 +1,4 @@
-<h1 align="center">Hi there 👋</h1>
+<h1 align="center">Hey guuuuyysss</h1>
 
 <p align="center">
   <img src="https://i.pinimg.com/originals/3c/54/d3/3c54d3a5519eda79991a818b75841889.gif" width="450">
